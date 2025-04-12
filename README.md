@@ -10,4 +10,4 @@ i will get atleast a bit mad if you claim to like my interests more than me.<br/
 
 here are some of my skins!<br/>
 
-https://files.catbox.moe/gatoq9.gif
+https://i.imgur.com/zQeYtl5.gif
