@@ -8,3 +8,6 @@ please be aware of my weird personality...<br/>
 ---<br/>
 i will get atleast a bit mad if you claim to like my interests more than me.<br/>
 
+im usually at the gravity falls or homestuck area.
+feel free to C+H!!! <3
+
