@@ -8,6 +8,3 @@ please be aware of my weird personality...<br/>
 ---<br/>
 i will get atleast a bit mad if you claim to like my interests more than me.<br/>
 
-here are some of my skins!<br/>
-
-https://i.imgur.com/zQeYtl5.gif
