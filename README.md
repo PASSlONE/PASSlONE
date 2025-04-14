@@ -10,10 +10,10 @@ please be aware of my weird personality...<br/>
 i will get atleast a bit mad if you claim to like my interests more than me.<br/>
 
 ## where to find me.
-im usually at the gravity falls or homestuck area.
-feel free to C+H!!! <3
+im usually at the gravity falls or homestuck area.<br/>
+**feel free to C+H!!! <3**
 
 ## friends!
-lena - HEYY BBG I LOVE UUU
-danger - ILY TOO WAWA
-avery - YOOOO ITS YOU, THE NONBINARY SIGMA, WSSUP?!
+lena - HEYY BBG I LOVE UUU<br/>
+danger - ILY TOO WAWA<br/>
+avery - YOOOO ITS YOU, THE NONBINARY SIGMA, WSSUP?!<br/>
