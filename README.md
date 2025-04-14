@@ -1,6 +1,7 @@
+## H2
 haiii!<br/>
 if ur visiting my profile, that means u saw me on Ponytown!<br/>
----<br/>
+
 emi / ama<br/>
 she / they<br/>
 im autistic and schizo, i have hallucinations of all kinds.<br/>
