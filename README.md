@@ -15,7 +15,7 @@ im not chill , im just awkward . . .<br/>
 
 ## INTERESTS !! ! ! 
 special interests: i have no mouth and i must scream, vocaloid<br/>
-*main interest rn:* homestuck
+*main interest rn:* homestuck<br/>
 current hyperfixations: watashinokoko, dsaf, fnaf, my own cinematic universe, *ASK ME ABOUT IT PLS.*<br/>
 
 
