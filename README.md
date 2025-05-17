@@ -12,7 +12,7 @@ emi / eternal sugar <br/>
 
 ## byi
 i have a lot of mental illnesses, those include *audhd, and schizophrenia.*<br/>
-**I HEAVILY KIN ETERNAL SUGAR COOKIE.**
+**I HEAVILY KIN ETERNAL SUGAR COOKIE AND SAYORI**
 
 ## interests ! ! 
 special interests: IHNMAIMS, Vocaloid
