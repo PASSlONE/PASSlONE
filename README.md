@@ -7,7 +7,7 @@ im often unpredictable, so if what i said/did upset you, please let me know.
 
 ## basic info !
 
-emi / eternal sugar <br/>
+emi / sayori <br/>
 4teen, dont be weird<br/>
 
 ## byi
