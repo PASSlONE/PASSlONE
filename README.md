@@ -22,5 +22,6 @@ special interests: IHNMAIMS, Vocaloid
 the MACU (ongoing, no social medias yet)
 
 ## blinkie collection
-wip until i add stuffs
+![](0178-mikuwink2.gif)
+![]
 
