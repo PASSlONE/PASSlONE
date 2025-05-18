@@ -19,7 +19,7 @@ special interests: IHNMAIMS, Vocaloid
 
 ## my creations!!!
 
-the MACU (ongoing, no social medias yet) ![](95b6ca9e.gif)
+the MACU (ongoing, no social medias yet) ![](74ee2fea.gif)
 
 ## blinkie collection
 ![](0178-mikuwink2.gif)
