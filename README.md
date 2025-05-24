@@ -15,7 +15,8 @@ i have a lot of mental illnesses, those include *audhd, and schizophrenia.*<br/>
 **I HEAVILY KIN ETERNAL SUGAR COOKIE AND SAYORI**
 
 ## interests ! ! 
-special interests: IHNMAIMS, Vocaloid
+special interests: IHNMAIMS, Vocaloid<br/>
+main interest rn: **HOMESTUCK**
 
 ## my creations!!!
 
@@ -24,4 +25,5 @@ the MACU (ongoing, no social medias yet) ![](74ee2fea.gif)
 ## blinkie collection
 ![](0178-mikuwink2.gif)
 ![](0249-beatinghearts.gif)
+![](homestuck-homestuck-blinkie.gif)
 
