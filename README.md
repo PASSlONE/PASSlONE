@@ -25,5 +25,5 @@ the MACU (ongoing, no social medias yet) ![](74ee2fea.gif)
 ## blinkie collection
 ![](0178-mikuwink2.gif)
 ![](0249-beatinghearts.gif)
-![](homestuck-homestuck-blinkie.gif)
+
 
