@@ -7,7 +7,7 @@ im often unpredictable, so if what I said/did upset you, please let me know. ![]
 
 ## basic info !
 
-emi / sayori <br/>
+emi / sayori / ama / teirva<br/>
 4teen, dont be weird<br/>
 
 ## byi
