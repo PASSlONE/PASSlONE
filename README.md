@@ -1,4 +1,4 @@
-
+![](peak.gif)
 
 ## about me !
 
