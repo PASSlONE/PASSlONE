@@ -12,7 +12,8 @@ emi / sayori / ama / teirva<br/>
 
 ## byi
 I have a lot of mental illnesses, those include *audhd, and schizophrenia.*<br/>
-**I HEAVILY KIN ETERNAL SUGAR COOKIE AND SAYORI**
+**I HEAVILY KIN ETERNAL SUGAR COOKIE AND SAYORI**<br/>
+i get angry easily plewse bear witz me
 
 ## interests ! ! 
 Special interests: IHNMAIMS, Vocaloid<br/>
