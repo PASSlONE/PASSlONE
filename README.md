@@ -2,7 +2,7 @@
 
 ## about me !
 
-I love Paris Green, its the best color ever! #50c878 for life.<br/>
+I love Paris Green, it's the best color ever! #50c878 for life.<br/>
 I'm often unpredictable, so if what I said/did upset you, please let me know. ![](bdef385c.gif)
 
 ## basic info !
@@ -11,9 +11,10 @@ emi / sayori / ama / teirva<br/>
 4teen, dont be weird<br/>
 
 ## byi
-I have a lot of mental illnesses, those include *audhd, and schizophrenia.*<br/>
+I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 **I HEAVILY KIN ETERNAL SUGAR COOKIE AND SAYORI**<br/>
-i get angry easily plewse bear witz me
+I get angry easily, please bear with me<br/>
+I may misspell stuff on purpose.
 
 ## interests ! ! 
 Special interests: IHNMAIMS, Vocaloid<br/>
