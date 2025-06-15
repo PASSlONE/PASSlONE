@@ -12,13 +12,14 @@ emi / sayori / ama / teirva<br/>
 
 ## byi
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
-**I HEAVILY KIN ETERNAL SUGAR COOKIE AND SAYORI**<br/>
+**I heavily kin Osaka and Sayori.** <br/>
 I get angry easily, please bear with me<br/>
 I may misspell stuff on purpose.
 
 ## interests ! ! 
 Special interests: IHNMAIMS, Vocaloid<br/>
-main interest rn: **HOMESTUCK**
+main interest rn: **HOMESTUCK**<br/>
+hyperfixations: *Forsaken*, Maretu, wtnkk, *obscure lost vocaloid songs, obscure vocaloid in general,* Masa Works Design's stuff, Ghost and pals, 
 
 ## my creations!!!
 
