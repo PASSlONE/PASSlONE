@@ -7,12 +7,12 @@ I'm often unpredictable, so if what I said/did upset you, please let me know. ![
 
 ## basic info !
 
-emi / sayori / ama / teirva<br/>
+emi / sayori / ama / teirva / Sol<br/>
 4teen, dont be weird<br/>
 
 ## byi
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
-**I heavily kin Osaka and Sayori.** <br/>
+**I heavily kin Osaka, Sayori, and Tavrisoleriterezepetaamzeequiuradikarnayaferi.** <br/>
 I get angry easily, please bear with me<br/>
 I may misspell stuff on purpose.
 
