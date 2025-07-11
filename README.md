@@ -20,7 +20,7 @@ I may misspell stuff on purpose.
 Special interests: IHNMAIMS, Vocaloid<br/>
 main interest rn: **HOMESTUCK**<br/>
 hyperfixations: *Forsaken*, Maretu, wtnkk, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals,<br/>
-other interests/general: old roblox and roblox myths, roblox in general, eumm i cant remember everything.
+other interests/general: old roblox and roblox myths, roblox in general, wobbledogs, analog horror eumm i cant remember everything.
 
 ## my creations!!!
 
