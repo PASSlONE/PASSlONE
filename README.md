@@ -1,9 +1,9 @@
-![](peak.gif)
+![]()
 
 ## about me ! ✮
 
 I love Paris Green, it's the best color ever! #50c878 for life.<br/>
-I'm often unpredictable, so if what I said/did upset you, please let me know. ![](bdef385c.gif)
+I'm often unpredictable, so if what I said/did upset you, please let me know. ![]()
 
 ## basic info ! ❀
 
@@ -28,9 +28,5 @@ other interests/general: old roblox and roblox myths, roblox in general, wobbled
 The MACU (ongoing, no social media yet)<br/>
 Alternian Dictionary (ongoing)
 
-
-## blinkie collection
-![](0178-mikuwink2.gif)
-![](0249-beatinghearts.gif)
 
 
