@@ -7,8 +7,9 @@ I'm often unpredictable, so if what I said/did upset you, please let me know. ![
 
 ## basic info ! ❀
 
-emi / sayori / ama / teirva / whatever skin I'm using<br/>
+*emi / sayori / ama / mango / whatever skin I'm using*<br/>
 5teen, dont be weird<br/>
+**i prefer the name emi**
 
 ## byi ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
