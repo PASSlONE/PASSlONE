@@ -3,7 +3,7 @@
 ## about me ! ✮
 
 I love Paris Green, it's the best color ever! #50c878 for life.<br/>
-I'm often unpredictable, so if what I said/did upset you, please let me know. ![]()
+I'm often unpredictable, so if what I said/did upset you, please let me know. ![](flower-bfb-flower-bfdi.gif)
 
 ## basic info ! ❀
 
