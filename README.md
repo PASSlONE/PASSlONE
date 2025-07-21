@@ -21,7 +21,7 @@ I may misspell stuff on purpose.
 ( if i like it a lot, it's in *italics*. If i love it, then it's in **bold**. )<br/>
 Special interests: **IHNMAIMS, Vocaloid**<br/>
 main interest rn: **HOMESTUCK**<br/>
-hyperfixations: *Forsaken*, Maretu, **wtnkk**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, *JJBA*<br/>
+hyperfixations: *Forsaken*, Maretu, **wtnkk**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, *JJBA*, **BFDI, II**<br/>
 other interests/general: old roblox and roblox myths, roblox in general, wobbledogs, analog horror eumm i cant remember everything.
 
 ## my creations!!!
