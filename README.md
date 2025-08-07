@@ -29,7 +29,7 @@ other interests/general: old roblox and roblox myths, roblox in general, wobbled
 The MACU (ongoing, no social media yet)<br/>
 Alternian Dictionary (ongoing)
 
-![](rainbow.gif)
+![](tumblr_8ea59acfbb2a37b3b7e791b98e135199_372bc6d7_1280.png)
 
 
 
