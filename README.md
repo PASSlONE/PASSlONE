@@ -15,7 +15,8 @@ I'm often unpredictable, so if what I said/did upset you, please let me know. ![
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 **I heavily kin Osaka, Sayori, and Tavrisoleriterezepetaamzeequiuradikarnayaferi.** <br/>
 I get angry easily, please bear with me.<br/>
-I may misspell stuff on purpose.
+I may misspell stuff on purpose.<br/>
+i may get clingy. i cant control it sorry
 
 ## interests ! !
 ( if i like it a lot, it's in *italics*. If i love it, then it's in **bold**. )<br/>
