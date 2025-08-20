@@ -2,34 +2,31 @@
 
 ## about me ! ✮
 
-I love Paris Green, it's the best color ever! #50c878 for life.<br/>
+I love Paris Green, it's my comfort color. #50c878 for life.<br/>
 I'm often unpredictable, so if what I said/did upset you, please let me know. ![](naily-bfdi.gif)<br/>
-i love my friends a LOT
+i love my friends a LOT. They mean the world to me.
 
 ## basic info ! ❀
 
 *emi / sayori / ama / mango / whatever skin I'm using*<br/>
 5teen, dont be weird<br/>
-**i prefer the name emi**
+**I prefer the name Emi.**
 
-## byi ! ❤︎
+## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 **I heavily kin Osaka, Sayori, and Tavrisoleriterezepetaamzeequiuradikarnayaferi.** <br/>
 I get angry easily, please bear with me.<br/>
-I may misspell stuff on purpose.<br/>
-i may get clingy. i cant control it sorry
+I may misspell stuff on purpose. I do have Grammarly though...<br/>
+I may get clingy. I can't control it, sorry<br/>
+Everything that i say is platonic, unless I say otherwise.<br/>
+I often ask for reassurance that you are not mad at me,<br/>
 
 ## interests ! !
-( if i like it a lot, it's in *italics*. If i love it, then it's in **bold**. )<br/>
+(If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
 Special interests: **IHNMAIMS, Vocaloid**<br/>
 main interests rn: **HOMESTUCK, JJBA**<br/>
 hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, **BFDI, II**, **Gravity Falls**<br/>
-other interests/general: old roblox and roblox myths, roblox in general, wobbledogs, analog horror eumm i cant remember everything.
-
-## my creations!!!
-
-The MACU (ongoing, no social media yet)<br/>
-Alternian Dictionary (ongoing)
+other interests/general: old Roblox and Roblox myths, Roblox in general, wobbledogs, analog horror eumm I can't remember everything.
 
 ![](tumblr_8ea59acfbb2a37b3b7e791b98e135199_372bc6d7_1280.png)
 
