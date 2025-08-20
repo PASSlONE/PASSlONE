@@ -12,6 +12,7 @@ i love my friends a LOT. They mean the world to me.
 5teen, dont be weird<br/>
 **I prefer the name Emi.**
 
+
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 **I heavily kin Osaka, Sayori, and Tavrisoleriterezepetaamzeequiuradikarnayaferi.** <br/>
