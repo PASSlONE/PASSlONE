@@ -8,7 +8,7 @@ i love my friends a LOT. They mean the world to me.
 
 ## basic info ! ❀
 
-*emi / sayori / ama / mango / whatever skin I'm using*<br/>
+*emi / sayori / ama / mango / marlon / whatever skin I'm using*<br/>
 5teen, dont be weird<br/>
 **I prefer the name Emi.**
 
