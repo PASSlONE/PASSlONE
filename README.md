@@ -27,7 +27,7 @@ i am fictoromantic and fictosexual, and i have been a yume/selfshipper since age
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
 Special interests: **IHNMAIMS, Vocaloid**<br/>
 main interests rn: **HOMESTUCK, JJBA**<br/>
-hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, **BFDI, II**, **Gravity Falls**<br/>
+hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, **BFDI, II**, **Gravity Falls**, *Evillous Chronicles*<br/>
 other interests/general: old Roblox and Roblox myths, Roblox in general, wobbledogs, analog horror eumm I can't remember everything.
 
 ![](tumblr_8ea59acfbb2a37b3b7e791b98e135199_372bc6d7_1280.png)
