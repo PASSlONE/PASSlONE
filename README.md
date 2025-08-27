@@ -30,6 +30,13 @@ main interests rn: **HOMESTUCK, JJBA**<br/>
 hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, **BFDI, II**, **Gravity Falls**, *Evillous Chronicles*<br/>
 other interests/general: old Roblox and Roblox myths, Roblox in general, wobbledogs, analog horror eumm I can't remember everything.
 
+## lovemail or smth
+najm - youre so cool hello???? i love ur humor sm ^^<br/>
+shosho - you are always so kind to me and i really appreciate it!!<br/>
+vivi - hi bro im speedwalking to your house rn!!<br/>
+mig - your skins are so edible (positively)<br/>
+lena - HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU<br/>
+
 ![](tumblr_8ea59acfbb2a37b3b7e791b98e135199_372bc6d7_1280.png)
 
 
