@@ -21,7 +21,7 @@ I may misspell stuff on purpose. I do have Grammarly though...<br/>
 I may get clingy. I can't control it, sorry<br/>
 Everything that i say is platonic, unless I say otherwise.<br/>
 I often ask for reassurance that you are not mad at me.<br/>
-i am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. i can not control it.<br/>
+i am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. **DOUBLES IWC.**
 
 ## interests ! !
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
