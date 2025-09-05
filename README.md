@@ -10,7 +10,8 @@ i love my friends a LOT. They mean the world to me.
 
 *emi / sayori / ama / mango / marlon / whatever skin I'm using*<br/>
 5teen, dont be weird<br/>
-**I prefer the name Emi.**
+**I prefer the name Emi.**<br/>
+my internet is abysmal so i may disconnect.
 
 
 ## before you int ! ❤︎
