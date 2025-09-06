@@ -16,13 +16,13 @@ my internet is abysmal so i may disconnect.
 
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
-**I heavily kin Osaka, Sayori, and Tavrisoleriterezepetaamzeequiuradikarnayaferi.** <br/>
+**I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.** <br/>
 I get angry easily, please bear with me.<br/>
 I may misspell stuff on purpose. I do have Grammarly though...<br/>
-I may get clingy. I can't control it, sorry<br/>
+I may get clingy. i cant control it, sorry<br/>
 Everything that i say is platonic, unless I say otherwise.<br/>
 I often ask for reassurance that you are not mad at me.<br/>
-i am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. **DOUBLES IWC.**
+I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. **DOUBLES IWC.**
 
 ## interests ! !
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
