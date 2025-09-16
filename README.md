@@ -11,18 +11,19 @@ i love my friends a LOT. They mean the world to me.
 *emi / sayori / ama / mango / marlon / whatever skin I'm using*<br/>
 5teen, dont be weird<br/>
 **I prefer the name Emi.**<br/>
-my internet is abysmal so i may disconnect.
+my internet is abysmal so i may disconnect.<br/>
+I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. **DOUBLES IWC.**<br/>
+**I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**
 
 
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
-**I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.** <br/>
 I get angry easily, please bear with me.<br/>
 I may misspell stuff on purpose. I do have Grammarly though...<br/>
 I may get clingy. i cant control it, sorry<br/>
 Everything that i say is platonic, unless I say otherwise.<br/>
 I often ask for reassurance that you are not mad at me.<br/>
-I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. **DOUBLES IWC.**
+
 
 ## interests ! !
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
@@ -32,9 +33,9 @@ hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vocaloid s
 other interests/general: old Roblox and Roblox myths, Roblox in general, wobbledogs, analog horror eumm I can't remember everything.
 
 ## lovemail or smth
-najm - youre so cool hello???? i love ur humor sm ^^<br/>
-shosho - you are always so kind to me and i really appreciate it!!<br/>
-vivi - hi bro im speedwalking to your house rn!!<br/>
+najm - youre so cool hello???? I love ur humor sm ^^<br/>
+shosho - you are always so kind to me, and i really appreciate it!!<br/>
+vivi - hi bro, im speedwalking to your house rn!!<br/>
 mig - your skins are so edible (positively)<br/>
 lena - HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU<br/>
 
