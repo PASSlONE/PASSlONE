@@ -1,5 +1,6 @@
 ![](rainbow.gif)
 
+![](https://komarev.com/ghpvc/?username=your-github-username&color=50c878)
 ## about me ! ✮
 
 I love Paris Green, it's my comfort color. #50c878 for life.<br/>
