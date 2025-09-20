@@ -1,4 +1,15 @@
 ![](rainbow.gif)
+
+
+## before you int ! ❤︎
+I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
+I get angry easily, please bear with me.<br/>
+I may misspell stuff on purpose. I do have Grammarly though...<br/>
+I may get clingy. i cant control it, sorry<br/>
+Everything that i say is platonic, unless I say otherwise.<br/>
+I often ask for reassurance that you are not mad at me.<br/>
+I hide/block freely. feel free to ask why I did it, though! i usually have a reason.
+
 ## about me ! ✮
 
 I love Paris Green, it's my comfort color. #50c878 for life.<br/>
@@ -13,15 +24,6 @@ i love my friends a LOT. They mean the world to me.
 my internet is abysmal so i may disconnect.<br/>
 I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. **DOUBLES IWC.**<br/>
 **I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**
-
-
-## before you int ! ❤︎
-I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
-I get angry easily, please bear with me.<br/>
-I may misspell stuff on purpose. I do have Grammarly though...<br/>
-I may get clingy. i cant control it, sorry<br/>
-Everything that i say is platonic, unless I say otherwise.<br/>
-I often ask for reassurance that you are not mad at me.<br/>
 
 
 ## interests ! !
