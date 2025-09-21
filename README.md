@@ -8,7 +8,8 @@ I may misspell stuff on purpose. I do have Grammarly though...<br/>
 I may get clingy. i cant control it, sorry<br/>
 Everything that i say is platonic, unless I say otherwise.<br/>
 I often ask for reassurance that you are not mad at me.<br/>
-I hide/block freely. feel free to ask why I did it, though! i usually have a reason.
+I hide/block freely. feel free to ask why I did it, though! i usually have a reason.<br/>
+If you yume/reiko with the same characters as me, I'll block you. **friends are exceptions.**
 
 ## about me ! ✮
 
@@ -22,7 +23,7 @@ i love my friends a LOT. They mean the world to me.
 5teen, dont be weird<br/>
 **I prefer the name Emi.**<br/>
 my internet is abysmal so i may disconnect.<br/>
-I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9. **DOUBLES IWC.**<br/>
+I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9.
 **I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**
 
 
