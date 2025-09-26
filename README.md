@@ -13,9 +13,8 @@ If you yume/reiko with the same characters as me, I'll block you. **friends are 
 
 ## about me ! ✮
 
-I love Paris Green, it's my comfort color. #50c878 for life.<br/>
+I love Paris Green, it's my comfort color. #50c878.<br/>
 I'm often unpredictable, so if what I said/did upset you, please let me know. ![](https://files.catbox.moe/jxd0c1.png)<br/>
-i love my friends a LOT. They mean the world to me.
 
 ## basic info ! ❀
 
@@ -23,8 +22,9 @@ i love my friends a LOT. They mean the world to me.
 5teen, dont be weird<br/>
 **I prefer the name Emi.**<br/>
 my internet is abysmal so i may disconnect.<br/>
-I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9.
-**I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**
+I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9.<br/>
+**I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**<br/>
+i love my friends!
 
 
 ## interests ! !
