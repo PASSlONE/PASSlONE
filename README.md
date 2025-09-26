@@ -14,7 +14,7 @@ If you yume/reiko with the same characters as me, I'll block you. **friends are 
 ## about me ! ✮
 
 I love Paris Green, it's my comfort color. #50c878 for life.<br/>
-I'm often unpredictable, so if what I said/did upset you, please let me know. ![](naily-bfdi.gif)<br/>
+I'm often unpredictable, so if what I said/did upset you, please let me know. ![](jj1-removebg-preview.png)<br/>
 i love my friends a LOT. They mean the world to me.
 
 ## basic info ! ❀
