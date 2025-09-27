@@ -1,4 +1,4 @@
-![](rainbow.gif)
+![](div.png)
 
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
@@ -40,7 +40,7 @@ vivi - hi bro, im speedwalking to your house rn!!<br/>
 mig - you're really fun to talk to and I really appreciate that we're friends! <br/>
 lena - HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU<br/>
 
-![](tumblr_8ea59acfbb2a37b3b7e791b98e135199_372bc6d7_1280.png)
+![](![](div2.png))
 
 
 
