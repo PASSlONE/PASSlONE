@@ -1,5 +1,4 @@
-![](rainbow.png)
-
+![](rainbow.gif)
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 I get angry easily, please bear with me.<br/>
