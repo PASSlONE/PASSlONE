@@ -1,6 +1,5 @@
 ![](rainbow.gif)
 
-![](https://komarev.com/ghpvc/?username=PASSlONE&label=(^u^))
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 I get angry easily, please bear with me.<br/>
