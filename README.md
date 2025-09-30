@@ -7,7 +7,7 @@ I may get clingy. i cant control it, sorry<br/>
 Everything that i say is platonic, unless I say otherwise.<br/>
 I often ask for reassurance that you are not mad at me.<br/>
 I hide/block freely. feel free to ask why I did it, though! i usually have a reason.<br/>
-I'm extremely nonsharing, and if you yume/selfship with the same characters as me, I'll block you. **friends are exceptions.** 
+I'm extremely nonsharing, and if you yume/selfship with the same characters as me, I'll block or avoid you. **friends are exceptions.** 
 
 ## about me ! ✮
 
