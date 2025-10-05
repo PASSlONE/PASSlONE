@@ -3,7 +3,7 @@
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 I get angry easily, please bear with me.<br/>
 I may misspell stuff on purpose. I do have Grammarly though...<br/>
-I may get clingy. i cant control it, and if it makes you uncomfortable, then i'll gladly tone it down for you!<br/>
+I may get clingy. i cant control it, and if it makes you uncomfortable, then i'll gladly try toning it down for you!<br/>
 Everything that i say is platonic, unless I say otherwise.<br/>
 I often ask for reassurance that you are not mad at me.<br/>
 I hide/block freely. feel free to ask why I did it, though! i usually have a reason.<br/>
