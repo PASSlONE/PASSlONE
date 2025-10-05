@@ -12,7 +12,7 @@ I'm extremely nonsharing, and if you yume/selfship with the same characters as m
 ## about me ! ✮
 
 I love Paris Green, it's my comfort color. #50c878.<br/>
-I'm often unpredictable, so if what I said/did upset you, please let me know. ![](https://files.catbox.moe/jxd0c1.png)<br/>
+I'm often unpredictable, so if what I said/did upset you, please let me know.<br/>
 
 ## basic info ! ❀
 
