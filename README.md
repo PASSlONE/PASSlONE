@@ -35,7 +35,6 @@ other interests/general: old Roblox and Roblox myths, Roblox in general, wobbled
 ## lovemail or smth
 najm - you're so cool hello???? I love ur humor sm ^^<br/>
 shosho - you are always so kind to me, and i really appreciate it!!<br/>
-vivi - hi bro, im speedwalking to your house rn!!<br/>
 mig - you're really fun to talk to and I really appreciate that we're friends! <br/>
 lena - HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU<br/>
 
