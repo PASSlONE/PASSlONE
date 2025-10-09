@@ -1,7 +1,7 @@
 ![](rainbow.gif)
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
-I get angry easily, please bear with me.<br/>
+I get angry/jealous easily, please bear with me.<br/>
 I may misspell stuff on purpose. I do have Grammarly though...<br/>
 I may get clingy. i cant control it, and if it makes you uncomfortable, then i'll gladly try toning it down for you!<br/>
 Everything that i say is platonic, unless I say otherwise.<br/>
