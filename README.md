@@ -1,4 +1,5 @@
 ![](rainbow.gif)
+![](https://komarev.com/ghpvc/?username=your-github-username&label=painkillers+taken:)
 ## before you int ! ❤︎
 I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
 I get angry/jealous easily, please bear with me.<br/>
