@@ -10,12 +10,7 @@ I often ask for reassurance that you are not mad at me.<br/>
 I hide/block freely. feel free to ask why I did it, though! i usually have a reason.<br/>
 I'm extremely nonsharing, and if you yume/selfship with the same characters as me, I'll block or avoid you. **friends are exceptions.** 
 
-## about me ! ✮
-
-I love Paris Green, it's my comfort color. #50c878.<br/>
-I'm often unpredictable, so if what I said/did upset you, please let me know.<br/>
-
-## basic info ! ❀
+## about me / basic info ! ❀
 
 *emi / sayori / ama / mango / marlon / whatever skin I'm using*<br/>
 5teen, dont be weird<br/>
@@ -23,8 +18,9 @@ I'm often unpredictable, so if what I said/did upset you, please let me know.<br
 my internet is abysmal so i may disconnect.<br/>
 I am fictoromantic and fictosexual, and i have been a yume/selfshipper since age 9.<br/>
 **I heavily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**<br/>
-i love my friends!
-
+i love my friends!<br/>
+I love Paris Green, it's my comfort color. #50c878.<br/>
+I'm often unpredictable, so if what I said/did upset you, please let me know.
 
 ## interests ! !
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
