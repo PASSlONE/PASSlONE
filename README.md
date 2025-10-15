@@ -26,7 +26,7 @@ I'm often unpredictable, so if what I said/did upset you, please let me know.
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
 Special interests: **IHNMAIMS, Vocaloid**<br/>
 main interests rn: **HOMESTUCK, JJBA**<br/>
-hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, **BFDI, II**, **Gravity Falls**, *Evillous Chronicles*, Cookie Run: Kingdom<br/>
+hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vocaloid songs, obscure vocalsynth stuff in general,* Masa Works Design's stuff, Ghost and pals, **BFDI, II**, **Gravity Falls**, *Evillous Chronicles*, Cookie Run: Kingdom, **Umamusume**<br/>
 other interests/general: old Roblox and Roblox myths, Roblox in general, wobbledogs, analog horror eumm I can't remember everything.
 
 ## lovemail or smth
