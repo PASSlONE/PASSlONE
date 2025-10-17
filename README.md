@@ -32,7 +32,7 @@ main interests rn: **HOMESTUCK, JJBA**<br/>
 hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vvocaloid songs, obscure vvocalsynth stuff in general,* masa wworks design's stuff, Ghost and pals, **BFDI, II**, **Gravvity Falls**, *Evvillous Chronicles*, Cookie Run: Kingdom, **Umamusume**<br/>
 other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, analog horror eumm I can't remember evverything.
 
-## lovemail or smth
+## lovvemail or smth
 najm - you're so cool hello???? I lovve ur humor sm ^^<br/>
 shosho - you are alwways so kind to me, and i really appreciate it!!<br/>
 mig - you're really fun to talk to and I really appreciate that wwe're friends! <br/>
