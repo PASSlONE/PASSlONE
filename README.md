@@ -22,7 +22,7 @@ i love my friends!<br/>
 I love Paris Green, it's my comfort color. #50c878.<br/>
 I'm often unpredictable, so if what I said/did upset you, please let me know.<br/>
 I also use eridan's typin quirk a lot, it brings me so much comfort!
-![](awww eridan.gif)
+![](awwweridan.gif)
 
 ## interests ! !
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
