@@ -8,7 +8,8 @@ I may get clingy. i cant control it, and if it makes you uncomfortable, then i'l
 Everything that i say is platonic, unless I say otherwise.<br/>
 I often ask for reassurance that you are not mad at me.<br/>
 I hide/block freely. feel free to ask why I did it, though! i usually have a reason.<br/>
-I'm extremely nonsharing, and if you yume/selfship with the same characters as me, I'll block or avoid you. **friends are exceptions.** 
+I'm extremely nonsharing, and if you yume/selfship with the same characters as me, I'll block or avoid you. **friends are exceptions.**
+![](eridan.gif)
 
 ## about me / basic info ! ❀
 
@@ -22,7 +23,7 @@ i love my friends!<br/>
 I love Paris Green, it's my comfort color. #50c878.<br/>
 I'm often unpredictable, so if what I said/did upset you, please let me know.<br/>
 I also use eridan's typin quirk a lot, it brings me so much comfort!<br/>
-![](eridan.gif)
+
 
 ## interests ! !
 (If I like it a lot, it's in *italics*. If I love it, then it's in **bold**. )<br/>
