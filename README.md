@@ -14,7 +14,7 @@ I'm extremely nonsharing, and if you yume/selfship with the same characters as m
 
 ## about me / basic info ! ❀
 
-*emi / sayori / ama / mango / marlon / wwhatever skin I'm using*<br/>
+*emi / sayori / ama / mango / marlon / wwhatevver skin I'm using*<br/>
 5teen, dont be wweird<br/>
 **I prefer the name Emi.**<br/>
 I am fictoromantic and fictosexual, and i havve been a yume/selfshipper since age 9.<br/>
