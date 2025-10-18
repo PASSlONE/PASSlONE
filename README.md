@@ -2,14 +2,14 @@
 
 ## before you int ! ❤︎
 
-I have a lot of mental illnesses, including *audhd, and schizophrenia.*<br/>
+I have a lot of mental illnesses, includin *audhd, and schizophrenia.*<br/>
 I get angry/jealous easily, please bear with me.<br/>
 I may misspell stuff on purpose.<br/>
-I may get clingy. i cant control it, and if it makes you uncomfortable, then i'll gladly try toning it dowwn for you!<br/>
+I may get clingy. i cant control it, and if it makes you uncomfortable, then i'll gladly try tonin it dowwn for you!<br/>
 Everything that i say is platonic, unless I say otherwwise.<br/>
 my internet is abysmal so i may disconnect.<br/>
-I hide/block freely. feel free to ask wwhy I did it, though! i usually have a reason.<br/>
-I'm extremely nonsharing, and if you yume/selfship with the same characters as me, I'll block or avvoid you. **friends are exceptions.**
+I hide/block freely. feel free to ask wwhy I did it, though! i usually havve a reason.<br/>
+I'm extremely nonsharin, and if you yume/selfship with the same characters as me, I'll block or avvoid you. **friends are exceptions.**
 ![](eridan2.gif)
 
 ## about me / basic info ! ❀
