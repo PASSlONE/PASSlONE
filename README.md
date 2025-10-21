@@ -17,7 +17,7 @@ I'm extremely nonsharin, and if you yume/selfship with the same characters as me
 *emi / sayori / ama / mango / marlon / wwhatevver skin I'm using*<br/>
 5teen, dont be wweird<br/>
 **I prefer the name Emi.**<br/>
-I am fictoromantic and fictosexual, and i havve been a yume/selfshipper since age 9.<br/>
+I'm ficto, so i do a **LOT** of self/yumeshipping. <br/>
 **I heavvily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**<br/>
 i lovve my friends!<br/>
 I lovve Paris Green, it's my comfort color. #50c878.<br/>
