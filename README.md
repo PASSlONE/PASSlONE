@@ -1,5 +1,5 @@
 ![](rainbow.gif)
-I STILL DONT KNOWW HOWW THIS WWORKS IM GONNA GO INSANE I SWWEAR
+I STILL DONT KNOWW HOWW THIS WWORKS
 ## before you int ! ❤︎
 
 I have a lot of mental illnesses, includin *audhd, and schizophrenia.*<br/>
