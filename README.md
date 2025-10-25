@@ -15,7 +15,7 @@ I'm extremely nonsharin, and if you yume/selfship with the same characters as me
 ## about me / basic info ! ❀
 
 *emi / sayori / ama / mango / marlon / wwhatevver skin I'm using*<br/>
-5teen, dont be wweird<br/>
+5teen, dont be wweird!<br/>
 **I prefer the name Emi.**<br/>
 I'm ficto, so i do a **LOT** of self/yumeshipping. <br/>
 **I heavvily kin Osaka, Sayori, Tavrisoleriterezepetaamzeequiuradikarnayaferi, and KAngel.**<br/>
