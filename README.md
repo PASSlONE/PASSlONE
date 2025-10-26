@@ -10,6 +10,7 @@ Everything that i say is platonic, unless I say otherwwise.<br/>
 my internet is abysmal so i may disconnect.<br/>
 I hide/block freely. feel free to ask wwhy I did it, though! i usually havve a reason.<br/>
 I'm extremely nonsharin, and if you yume/selfship with the same characters as me, I'll block or avvoid you. **friends are exceptions.**
+[also i REALLY hate to see ships with my f/o's so like dont mention those around me thanks!]
 ![](eridan2.gif)
 
 ## about me / basic info ! ❀
