@@ -30,8 +30,8 @@ I also use eridan's typin quirk a lot, it brings me so much comfort!<br/>
 (If I like it a lot, it's in *italics*. If I lovve it, then it's in **bold**. )<br/>
 Special interests: **IHNMAIMS, vvocaloid**<br/>
 main interests rn: **HOMESTUCK, JJBA**<br/>
-hyperfixations: *Forsaken*, Maretu, **watashino koko**, *obscure lost vvocaloid songs, obscure vvocalsynth stuff in general,* masa wworks design's stuff, Ghost and pals, **BFDI, II**, **Gravvity Falls**, *Evvillous Chronicles*, Cookie Run: Kingdom, **Umamusume**<br/>
-other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, analog horror eumm I can't remember evverything.
+hyperfixations: House M.D, Maretu, **watashino koko**, *obscure lost vvocaloid songs, obscure vvocalsynth stuff in general,* masa wworks design's stuff, Ghost and pals, **BFDI, II**, **Gravvity Falls**, *Evvillous Chronicles*, Cookie Run: Kingdom, **Umamusume**<br/>
+other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, minecraft args, neurodegenerative diseases, wwikipedia, analog horror eumm I can't remember evverything.
 
 ## lovvemail or smth
 najm - you're so cool hello???? I lovve ur humor sm ^^<br/>
