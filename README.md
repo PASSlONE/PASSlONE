@@ -34,10 +34,10 @@ hyperfixations: House M.D, Maretu, **watashino koko**, *obscure lost vvocaloid s
 other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, minecraft args, neurodegenerative diseases, wwikipedia, analog horror eumm I can't remember evverything.
 
 ## lovvemail or smth
-najm - you're so cool hello???? I lovve ur humor sm ^^<br/>
-shosho - you are alwways so kind to me, and i really appreciate it!!<br/>
-mig - you're really fun to talk to and I really appreciate that wwe're friends! <br/>
-lena - HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU<br/>
+najm - you're so cool hello???? I lovve ur humor sm ^^ no joke though, you're a good friend of mine! <br/>
+shosho - you are alwways so kind to me, and i really appreciate it!! you're such a good person and i wish you nothing but the best!!<br/>
+mig - you're really fun to talk to and I really appreciate that wwe're friends! you're genuinely such a comforting presence and i'm glad that I know you!! <br/>
+lena - GOOD LORD, HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU!! YOU'RE ONE OF MY BESTEST FRIENDS!! IJUST CANT WAIT TO MEET YOU AGAIN!! <br/>
 
 
 
