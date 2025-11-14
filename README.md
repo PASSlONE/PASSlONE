@@ -12,7 +12,7 @@ I hide/block freely. feel free to ask wwhy I did it, though! i usually havve a r
 I'm also a riako! :)<br/>
 I'm extremely nonsharin, and if you yume/selfship with the same characters as me, I'll block or avvoid you. **friends are exceptions.**<br/>
 ( also i REALLY hate to see ships with my f/o's so like dont mention those around me thanks! )<br/>
-![](eridan2.gif)
+![](ab67706c0000da847df5b05db6f8ca5698f13cbc-removebg-preview.png)
 
 ## about me / basic info ! ❀
 
