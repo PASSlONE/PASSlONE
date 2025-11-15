@@ -34,7 +34,6 @@ Special interests: **IHNMAIMS, vvocaloid**<br/>
 main interests rn: **HOMESTUCK, JJBA**<br/>
 hyperfixations: House M.D, Maretu, **watashino koko**, *obscure lost vvocaloid songs, obscure vvocalsynth stuff in general,* masa wworks design's stuff, Ghost and pals, **BFDI, II**, **Gravvity Falls**, *Evvillous Chronicles*, Cookie Run: Kingdom, **Umamusume**<br/>
 other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, minecraft args, neurodegenerative diseases, wwikipedia, analog horror eumm I can't remember evverything.<br/>
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31yl37gaz5zak3g3y2pmeqdl2aaq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ## lovvemail or smth
 najm - you're so cool hello???? I lovve ur humor sm ^^ no joke though, you're a good friend of mine! <br/>
