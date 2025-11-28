@@ -33,7 +33,7 @@ I also use eridan's typin quirk a lot, it brings me so much comfort!<br/>
 Special interests: **IHNMAIMS, vvocaloid**<br/>
 main interests rn: **HOMESTUCK, JJBA**<br/>
 hyperfixations: House M.D, Maretu, **watashino koko**, *obscure lost vvocaloid songs, obscure vvocalsynth stuff in general,* masa wworks design's stuff, Ghost and pals, **BFDI, II**, **Gravvity Falls**, *Evvillous Chronicles*, Cookie Run: Kingdom, **Umamusume**, **South Park**<br/>
-other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, minecraft args, neurodegenerative diseases, wwikipedia, analog horror, SCP foundation<br/>
+other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, minecraft args, neurodegenerative diseases, **wwikipedia**, analog horror, SCP foundation, *HNDR*<br/>
 
 ## lovvemail or smth
 najm - you're so cool hello???? I lovve ur humor sm ^^ no joke though, you're a good friend of mine! <br/>
