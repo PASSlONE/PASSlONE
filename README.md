@@ -32,16 +32,16 @@ I also use eridan's typin quirk a lot, it brings me so much comfort!<br/>
 (If I like it a lot, it's in *italics*. If I lovve it, then it's in **bold**. )<br/>
 Special interests: **IHNMAIMS, vvocaloid**<br/>
 main interests rn: **HOMESTUCK, JJBA**, **South Park**<br/>
-hyperfixations: House M.D, Maretu, **watashino koko**, *obscure lost vvocaloid songs, obscure vvocalsynth stuff in general,* masa wworks design's stuff, Ghost and pals, **BFDI, II**, **Gravvity Falls**, *Evvillous Chronicles*, Cookie Run: Kingdom, **Umamusume**<br/>
+hyperfixations: House M.D, Maretu, **wwatashino koko**, *obscure lost vvocaloid songs, obscure vvocalsynth stuff in general,* masa wworks design's stuff, Ghost and pals, **BFDI, II**, **Gravvity Falls**, *Evvillous Chronicles*, Cookie Run: Kingdom, **Umamusume**<br/>
 other interests/general: old Roblox and Roblox myths, Roblox in general, wwobbledogs, minecraft args, neurodegenerative diseases, **wwikipedia**, analog horror, SCP foundation, *HNDR*<br/>
 
 ## lovvemail / shout-outs!
 najm - you're so cool hello???? I lovve ur humor sm ^^ no joke though, you're a good friend of mine! <br/>
 shosho - you are alwways so kind to me, and i really appreciate it!! you're such a good person and i wwish you nothin but the best!!<br/>
 mig - you're really fun to talk to and I really appreciate that wwe're friends! you're genuinely such a comfortin presence and i'm glad that I knoww you!!<br/>
-lena - GOOD LORD, HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU!! YOU'RE ONE OF MY BESTEST FRIENDS!! IJUST CANT WWAIT TO MEET YOU AGAIN!!<br/>
-cyber - wwe havvent talked that much but youre still a goodd friend of mine!!!!<br/>
-johnny - you're very patient with me and I appreciate it a lot!!!<br/>
+lena - GOOD LORD, HI BRO YOURE SO HDFHDHFFHHFHDH I MISS YOU!! YOU'RE ONE OF MY BESTEST FRIENDS!! I JUST CANT WWAIT TO MEET YOU AGAIN!!<br/>
+cyber - wwe havvent talked that much, but youre still a good friend of mine!!!!<br/>
+johnny - you're very patient wwith me and I appreciate it a lot!!!<br/>
 ![](div0.jpg)<br/>
 
 
