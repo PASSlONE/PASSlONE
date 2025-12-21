@@ -1,7 +1,7 @@
 ![](sp-png1-removebg-preview.png)<br/>
-<center>emi<br/>
-<center></center>15yrs, audhd + schizophrenia<br/>
-<center></center>nonsharing yumeshipper with 60+ f/o's! doubles dni!<br/>
+emi<br/>
+15yrs, **audhd + schizophrenia**<br/>
+nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
 <details>
   <summary>stamps</summary>
 <img width="386" height="56" alt="wow" src="https://github.com/user-attachments/assets/4594f4a3-0f6a-493b-91ec-4407db3fa2c5" />
