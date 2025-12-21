@@ -2,4 +2,4 @@
 emi<br/>
 15yrs, **audhd + schizophrenia**<br/>
 nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
-![strawpage](https://idnerien.straw.page/)
+![](https://idnerien.straw.page/)
