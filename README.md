@@ -4,7 +4,7 @@ emi<br/>
 nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
 <details>
   <summary>stamps</summary>
-  ![](wow.png)
-  ![](wow2.png)
-  ![](wow3.png)
-  ![](wow4.png)
+  ![](https://files.catbox.moe/9j9xvw.png)
+  ![](https://files.catbox.moe/wac1xc.png)
+  ![](https://files.catbox.moe/f4rf4o.png)
+  ![](https://files.catbox.moe/8jz4r4.png)
