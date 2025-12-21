@@ -4,7 +4,8 @@ emi<br/>
 nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
 <details>
   <summary>stamps</summary>
-![](https://files.catbox.moe/9j9xvw.png)<br/>
-![](https://files.catbox.moe/wac1xc.png)<br/>
-![](https://files.catbox.moe/f4rf4o.png)<br/>
-![](https://files.catbox.moe/8jz4r4.png)<br/>
+<img width="386" height="56" alt="wow" src="https://github.com/user-attachments/assets/4594f4a3-0f6a-493b-91ec-4407db3fa2c5" />
+<img width="386" height="56" alt="wow2" src="https://github.com/user-attachments/assets/017c7469-5bb7-4d9e-9a7e-9c0257beb2a3" />
+<img width="386" height="56" alt="wow3" src="https://github.com/user-attachments/assets/8cd4d632-94e4-4aff-82af-7456d2ca2a63" />
+<img width="386" height="56" alt="wow4" src="https://github.com/user-attachments/assets/1689af91-5c5f-46c5-a07c-9ee044ebf26e" />
+
