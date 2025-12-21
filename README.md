@@ -1,3 +1,3 @@
-            emi<br/>
-             15yrs, **audhd** + **schizophrenia**<br/>
+<center>emi<br/>
+<center>15yrs, **audhd** + **schizophrenia**<br/>
 
