@@ -10,6 +10,7 @@ nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!**<br/>
   i have many hyperfixations, but my main ones rn are South Park, Homestuck, and JJBA.<br/>
   i am from Hungary, but I prefer to speak English!<br/>
   if you ship any sp ships,,, PLEASE dni it makes me physically sick.<br/>
+  i get pissed off/jealous easily, please forgive me! i cant control it...<br/>
   i hide/block VERY freely, feel free to ask why I did it tho. I usually have a reason.<br/>
   about my f/o's: i take my relationships with them VERY seriously. i genuinely have panic attacks when I see doubles. it do be like that.
 <end></end>
