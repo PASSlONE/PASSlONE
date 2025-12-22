@@ -4,6 +4,9 @@ emi<br/>
 15yrs, **audhd + schizophrenia**<br/>
 nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
 <details>
+  <summary>about me</summary>
+.<br/>
+<details>
   <summary>stamps</summary>
 <img width="386" height="56" alt="wow" src="https://github.com/user-attachments/assets/4594f4a3-0f6a-493b-91ec-4407db3fa2c5" />
 <img width="386" height="56" alt="wow2" src="https://github.com/user-attachments/assets/017c7469-5bb7-4d9e-9a7e-9c0257beb2a3" />
