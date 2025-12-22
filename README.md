@@ -4,8 +4,9 @@ emi<br/>
 15yrs, **audhd + schizophrenia**<br/>
 nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
 <details>
-  <summary>about me</summary>
-.<br/>
+  <summary>about me / other</summary>
+  i prefer to be called emi, or mango by close friends.
+<end>
 <details>
   <summary>stamps</summary>
 <img width="386" height="56" alt="wow" src="https://github.com/user-attachments/assets/4594f4a3-0f6a-493b-91ec-4407db3fa2c5" />
