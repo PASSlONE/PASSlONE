@@ -5,8 +5,14 @@ emi<br/>
 nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
 <details>
   <summary>about me / other</summary>
-  i prefer to be called emi, or mango by close friends.
-<end>
+  i prefer to be called emi, or mango by close friends.<br/>
+  my special interests are vocaloid and ihnmaims.<br/>
+  i have many hyperfixations, but my main ones rn are South Park, Homestuck, and JJBA.<br/>
+  i am from Hungary, but I prefer to speak English!<br/>
+  if you ship any sp ships,,, PLEASE dni it makes me physically sick.
+  i hide/block VERY freely, feel free to ask why I did it tho. I usually have a reason.
+<details>
+  
 <details>
   <summary>stamps</summary>
 <img width="386" height="56" alt="wow" src="https://github.com/user-attachments/assets/4594f4a3-0f6a-493b-91ec-4407db3fa2c5" />
@@ -15,3 +21,4 @@ nonsharing yumeshipper with 60+ f/o's! **doubles dni!**<br/>
 <img width="386" height="56" alt="wow4" src="https://github.com/user-attachments/assets/1689af91-5c5f-46c5-a07c-9ee044ebf26e" />
 <img width="386" height="56" alt="wow5" src="https://github.com/user-attachments/assets/d454d7e6-c6f7-4ee2-ae60-c2fb26fcfa24" />
 <img width="386" height="56" alt="wow6" src="https://github.com/user-attachments/assets/1eaf8348-e4b4-42a3-88a9-f74f259b05fa" />
+<details>
