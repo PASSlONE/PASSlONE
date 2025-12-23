@@ -3,20 +3,20 @@
 emi<br/>
 15yrs, **audhd + schizophrenia**<br/>
 nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!**<br/>
-uhh i might isolate myself if im uncomfortable / overwhelmed<br/>
+uhh I might isolate myself if im uncomfortable / overwhelmed<br/>
 <details>
   <summary>about me / other</summary>
   i prefer to be called emi, or mango by close friends.<br/>
   my special interests are vocaloid and ihnmaims.<br/>
-  i have many hyperfixations, but my main ones rn are South Park, Homestuck, and JJBA.<br/>
-  i am from Hungary, but I prefer to speak English!<br/>
-  PLEASE don't differentiate me from other ppl you know! it makes me uncomfortable : (<br/>
-  i get pissed off/jealous easily, please forgive me! i cant control it...<br/>
+  I have many hyperfixations, but my main ones rn are South Park, Homestuck, and JJBA.<br/>
+  I am from Hungary, but I prefer to speak English!<br/>
+  PLEASE don't treat me differently from other ppl you know! it makes me uncomfortable : (<br/>
+  I get pissed off/jealous easily, please forgive me! i cant control it...<br/>
   i hide/block VERY freely, feel free to ask why I did it tho. I usually have a reason.<br/>
-  about my f/o's: i take my relationships with them VERY seriously. i genuinely have panic attacks when I see doubles. It do be like that.<br/>
+  about my f/o's: i take my relationships with them VERY seriously. I genuinely have panic attacks when I see doubles. It do be like that.<br/>
   I am a heavy Tavrisoleriterezepetamzeequiradikarnayaferi, Osaka, KAngel, and Sayori kin, sadly. I'd prefer doubles not to int.<br/>
   my mental illnesses influence how I act and speak, so I will be off-putting. sorry.<br/>
-  please, do tell me if I did smth wrong.<br/>
+  Please, do tell me if I did smth wrong.<br/>
 <end></end>
   
 <details>
