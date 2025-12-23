@@ -15,7 +15,8 @@ uhh i might isolate myself if im uncomfortable / overwhelmed<br/>
   i hide/block VERY freely, feel free to ask why I did it tho. I usually have a reason.<br/>
   about my f/o's: i take my relationships with them VERY seriously. i genuinely have panic attacks when I see doubles. It do be like that.<br/>
   I am a heavy Tavrisoleriterezepetamzeequiradikarnayaferi, Osaka, KAngel, and Sayori kin, sadly. I'd prefer doubles not to int.<br/>
-  my mental illnesses influence how I act and speak, so I will be off-putting. sorry.
+  my mental illnesses influence how I act and speak, so I will be off-putting. sorry.<br/>
+  please dont differentiate me from your other oomfs in any way! it makes me anxious :(<br/>
 <end></end>
   
 <details>
