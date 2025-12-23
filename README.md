@@ -12,9 +12,9 @@ nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!**<br/>
   if you ship any sp ships,,, PLEASE dni it makes me physically sick.<br/>
   i get pissed off/jealous easily, please forgive me! i cant control it...<br/>
   i hide/block VERY freely, feel free to ask why I did it tho. I usually have a reason.<br/>
-  about my f/o's: i take my relationships with them VERY seriously. i genuinely have panic attacks when I see doubles. it do be like that.<br/>
-  I am a heavily Tavrisoleriterezepetamzeequiradikarnayaferi, Osaka, KAngel, and Sayori kin, sadly. i'd prefer doubles not to int.<br/>
-  my mental illnesses influence how I act and speak, so I will be offputting. sorry.
+  about my f/o's: i take my relationships with them VERY seriously. i genuinely have panic attacks when I see doubles. It do be like that.<br/>
+  I am a heavy Tavrisoleriterezepetamzeequiradikarnayaferi, Osaka, KAngel, and Sayori kin, sadly. I'd prefer doubles not to int.<br/>
+  my mental illnesses influence how I act and speak, so I will be off-putting. sorry.
 <end></end>
   
 <details>
