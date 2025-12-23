@@ -16,7 +16,7 @@ uhh i might isolate myself if im uncomfortable / overwhelmed<br/>
   about my f/o's: i take my relationships with them VERY seriously. i genuinely have panic attacks when I see doubles. It do be like that.<br/>
   I am a heavy Tavrisoleriterezepetamzeequiradikarnayaferi, Osaka, KAngel, and Sayori kin, sadly. I'd prefer doubles not to int.<br/>
   my mental illnesses influence how I act and speak, so I will be off-putting. sorry.<br/>
-  please dont differentiate me from your other oomfs in any way! it makes me anxious :(<br/>
+  please, do tell me if I did smth wrong.<br/>
 <end></end>
   
 <details>
