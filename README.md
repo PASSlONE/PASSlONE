@@ -2,7 +2,7 @@
 ![](sp-png1-removebg-preview.png)<br/>
 emi<br/>
 15yrs, **audhd + schizophrenia**<br/>
-nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!**<br/>
+nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!** ASK ME ABOUT THEM PLEASE<br/>
 uhh I might isolate myself if im uncomfortable / overwhelmed<br/>
 <details>
   <summary>about me / other</summary>
