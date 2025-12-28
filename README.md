@@ -4,6 +4,7 @@ emi<br/>
 15yrs, **audhd + schizophrenia**<br/>
 nonsharing yumeshipper/riako with 60+ f/o's! **doubles dni!** ASK ME ABOUT MY F/O'S PLEASE<br/>
 uhh I might isolate myself if im uncomfortable / overwhelmed<br/>
+im literally the #1 mysterion fan. fight me!!!<br/>
 <details>
   <summary>about me / other</summary>
   i prefer to be called emi, or mango by close friends.<br/>
